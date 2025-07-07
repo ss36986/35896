@@ -23,4 +23,4 @@
 现在就开始你的日本AV免费在线观看之旅，每天都有更新，每次点击，都是新的发现。
 
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/ss36986/35896 ）</span>
